@@ -1,1 +1,1 @@
-# r4ts, dont touch!
+# smth shit backup, dont touch it maybe
